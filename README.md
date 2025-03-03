@@ -1,5 +1,6 @@
-# TTENIM DOMINI 
-## Despres de 2h, 8 comptes a altres pagines i 3 correus falsos 
+# ¡AL FIN, TENIM EL NOSTRE DOMINI! 🚀  
+## Després de 2 hores, 8 comptes en altres pàgines i 3 correus falsos... 😂
 
-Hem recurrit a la opcio fàcil de github, pero...
+Hem acabat optant per la via fàcil de GitHub, però...
+![](FyBnA02WIAUigG-.jpg)
 
